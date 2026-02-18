@@ -1,0 +1,67 @@
+# Kana Nishino – No.1
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Uh Uh Uh… Uh Uh Uh…
+Uh Uh Uh… Uh Uh Uh…
+傷付くかもしれないなら
+気まずくなっちゃうくらいなら
+Ah
+恋なんてもうしない方がいいのかな
+優しくしてくれる誰かと適当に付き
+合うくらいなら
+Ah いっそのことひとりでいた方が
+いいの？
+恥ずかしくて目をそらすとか
+緊張して上手く話せないなんてあり
+えない
+大人なんだし、かっこよく生きたい
+のに
+Cause baby you're my No.1
+And you're the only one
+Uh その笑顔その瞳全てがドキドキ
+させる
+Cause baby you're my No.1
+And you're the only one
+Uh ちょっと自分でも怖いくらい
+I wanna be your No.1
+この想い止まらない
+Uh Uh Uh… Uh Uh Uh…
+仕事も手につかないなら
+自分らしくいられないなら
+Ah いっそのこと好きじゃないこと
+にしたい
+メールの返信がないとか
+今何してるのかななんて
+気にしない忙しいしクールに生きた
+いのに
+Cause baby you're my No.1
+And you're the only one
+Uh 分からないその心全てがイライ
+ラさせる
+Cause baby you're my No.1
+And you're the only one
+Uh ちょっと自分でも怖いくらい
+I wanna be your No.1
+この思い止まらない
+Uh Uh Uh… Uh Uh Uh…
+戸惑いもプライドも Ah
+Uh Uh Uh… Uh Uh Uh…
+少しずつ崩れてく
+キライキライやっぱりスキ
+本気で好きでもいいかな？
+Uh Uh Uh… Uh Uh Uh…
+I wanna be your No.1
+Cause baby you're my No.1
+And you're the only one
+Uh その笑顔その瞳全てがドキドキ
+させる
+Cause baby you're my No.1
+And you're the only one
+Uh ちょっと自分でも怖いくらい
+I wanna be your No.1
+この想い止まらない
+Uh Uh Uh… Uh Uh Uh…
+Uh Uh Uh… Uh Uh Uh…
+```
